@@ -48,4 +48,4 @@ FC2视频：这是一个知名的资源站，提供丰富的素人AV资源，支
 
 选择可信资源：尽量避免下载不明来源的文件，以防被恶意软件感染。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/mjq1221/2347 ）</span>
